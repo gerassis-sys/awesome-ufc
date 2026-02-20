@@ -17,6 +17,9 @@
 - [Vendas e divulgações UFC](https://chat.whatsapp.com/Lbp3QFNJAbo8ms4fh0x9Eo) - Grupo destinado a venda de itens e divulgações de eventos, etc
 - [Oportunidades UFC](https://chat.whatsapp.com/JWNzK1LxJUA59QfikGEtRv) - Grupo destinado a divulgação de várias coisas
 
+### Facebook
+- [Avaliação Institucional UFC](https://www.facebook.com/groups/806154906077246/) - Grupo destinado ao compartilhamento de experiências dos discentes
+
 ## Calouros
 
 [ufc.br](https://sisu.ufc.br/pt/boas-vindas/) - Há várias informações úteis para os calouros no site oficial da UFC
