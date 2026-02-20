@@ -22,4 +22,4 @@
 [ufc.br](https://sisu.ufc.br/pt/boas-vindas/) - Há várias informações úteis para os calouros no site oficial da UFC
   
 ## Contribuições
-Sinta-se livre para adicionar qualquer tópico e/ou qualquer entrada relacionado ao seu curso
+Sinta-se livre para adicionar qualquer tópico e/ou qualquer entrada relacionada ao seu curso
