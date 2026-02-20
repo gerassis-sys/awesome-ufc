@@ -8,6 +8,8 @@
 
 ## Grupos gerais
 
+### WhatsApp
+
 - [AVALIAÇÃO INSTITUCIONAL UFC](https://chat.whatsapp.com/BCyqv13LmYWCdF1Vwnex1o?mode=gi_t) - Grupo destinado ao compartilhamento de experiências dos discentes
 - [Auxílios e bolsas da PRAE](https://chat.whatsapp.com/DVSPxuWvtKYLkji9NxLgeJ) - Grupo destinado a auxílios e bolsas
 - [Auxílios e Bolsas PRAE 2](https://chat.whatsapp.com/BIuUPRVzHnQ022tDiKG7dU) - Grupo destinado a auxílios e bolsas (caso faltem vagas no outro grupo)
