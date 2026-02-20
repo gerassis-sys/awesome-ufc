@@ -23,7 +23,7 @@
 ## Calouros
 
 - [ufc.br](https://sisu.ufc.br/pt/boas-vindas/) - Há várias informações úteis para os calouros no site oficial da UFC
-- PET do seu curso - Procure o PET do seu grupo no Instagram para entrar no grupo do whatsapp do seu curso no seu respectivo semestre
+- PET do seu curso - Procure o PET do seu curso no Instagram para entrar no grupo do whatsapp do seu curso no seu respectivo semestre
   
 ## Contribuições
 Sinta-se livre para adicionar qualquer tópico e/ou qualquer entrada relacionada ao seu curso
